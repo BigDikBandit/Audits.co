@@ -5,4 +5,4 @@
 Send shitcoins here so I can exiting scem^
 
 
-Audits by autist
+Audits by Bandits
